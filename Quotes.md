@@ -1,2 +1,3 @@
 - “If you don’t like the hand that fate’s dealt you with, fight for a new one.” – Naruto Uzumaki
 - "The greatest glory in living lies not in never falling, but in rising every time we fall." -Nelson Mandela
+- "The way to get started is to quit talking and begin doing." -Walt Disney
