@@ -6,4 +6,5 @@
 -  “I have burrowed underneath your brain. I am nested there. I am the scream in your mind. You will cooperate.” ― Mr. Robot
 -  “The concept of waiting bewilders me. There are always deadlines. There are always ticking clocks. That is why you must manage your time.” ― Mr. Robot
 -  “If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.” ― Nikola Tesla 
--  “I don't care that they stole my idea . . I care that they don't have any of their own” ― Nikola Tesla 
+-  “I don't care that they stole my idea . . I care that they don't have any of their own” ― Nikola Tesla
+-  “Of all things, I liked books best.” ― Nikola Tesla
