@@ -5,3 +5,4 @@
 -  “When we lose our principles, we invite chaos.” ― Mr. Robot
 -  “I have burrowed underneath your brain. I am nested there. I am the scream in your mind. You will cooperate.” ― Mr. Robot
 -  “The concept of waiting bewilders me. There are always deadlines. There are always ticking clocks. That is why you must manage your time.” ― Mr. Robot
+-  “Books are as useful to a stupid person as a mirror is usefyl to a blind person.”  – Chanakya
