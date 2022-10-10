@@ -8,3 +8,4 @@
 -  “If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.” ― Nikola Tesla 
 -  “I don't care that they stole my idea . . I care that they don't have any of their own” ― Nikola Tesla
 -  “Of all things, I liked books best.” ― Nikola Tesla
+-  “The present is theirs; the future, for which I really worked, is mine.” ― Nikola Tesla
