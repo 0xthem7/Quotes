@@ -10,3 +10,4 @@
 -  “Of all things, I liked books best.” ― Nikola Tesla
 -  “The present is theirs; the future, for which I really worked, is mine.” ― Nikola Tesla
 - “Fortune favors the bold.” – Virgil
+- That which does not kill us makes us stronger." -Friedrich Nietzsche
