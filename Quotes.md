@@ -19,3 +19,4 @@
 -  No pressure, no diamonds --Thomas Carlyle
 - Love For All, Hatred For None. – Khalifatul Masih III
 - Change the world by being yourself. – Amy Poehler
+- Every moment is a fresh beginning. – T.S Eliot
