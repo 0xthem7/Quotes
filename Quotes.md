@@ -19,3 +19,4 @@
 -  No pressure, no diamonds --Thomas Carlyle
 - Love For All, Hatred For None. – Khalifatul Masih III
 - Without music, life would be a mistake – Friedrich Nietzsche
+- Change the world by being yourself. – Amy Poehler
