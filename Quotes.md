@@ -13,5 +13,5 @@
 - "That which does not kill us makes us stronger." -Friedrich Nietzsche
 - "When the going gets tough, the tough get going." -Joe Kennedy
 - "You must be the change you wish to see in the world." -Mahatma Gandhi
-
-“Be yourself; everyone else is already taken.” -― Oscar Wilde
+- “Be yourself; everyone else is already taken.” -― Oscar Wilde
+- You can totally do this -Unknown
