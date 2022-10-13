@@ -18,3 +18,4 @@
 - Don’t tell people your plans. Show them your results. -Unknown
 -  No pressure, no diamonds --Thomas Carlyle
 - Love For All, Hatred For None. – Khalifatul Masih III
+- Change the world by being yourself. – Amy Poehler
