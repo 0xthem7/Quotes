@@ -21,5 +21,5 @@
 - Change the world by being yourself. – Amy Poehler
 - Every moment is a fresh beginning. – T.S Eliot
 - Never regret anything that made you smile. – Mark Twain
-- Stay foolish to stay sane. Maxime Lagacé
+- " Stay foolish to stay sane." Maxime Lagacé
 - " No pressure, no diamonds." - Thomas Carlyle
