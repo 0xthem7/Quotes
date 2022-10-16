@@ -24,3 +24,4 @@
 - " Stay foolish to stay sane." Maxime Lagacé
 - " No pressure, no diamonds." - Thomas Carlyle
 - "Fortune favors the bold.” – Virgil
+- "That which does not kill us makes us stronger." -unknown
