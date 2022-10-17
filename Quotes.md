@@ -26,3 +26,4 @@
 - "Fortune favors the bold.” – Virgil
 - "That which does not kill us makes us stronger." -unknown
 - "Life is what happens when you’re busy making other plans." - unknown
+- “The Revolution is made by man, but man must forge his revolutionary spirit from day-to-day.” ― Che Guevara
