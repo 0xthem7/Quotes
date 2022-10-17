@@ -22,7 +22,7 @@
 - Every moment is a fresh beginning. – T.S Eliot
 - Never regret anything that made you smile. – Mark Twain
 - "Stay foolish to stay sane." Maxime Lagacé
-- " No pressure, no diamonds." - Thomas Carlyle
+- "No pressure, no diamonds." - Thomas Carlyle
 - "Fortune favors the bold.” – Virgil
 - "That which does not kill us makes us stronger." -unknown
 - "Life is what happens when you’re busy making other plans." - unknown
