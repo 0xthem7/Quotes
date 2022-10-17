@@ -25,4 +25,4 @@
 - " No pressure, no diamonds." - Thomas Carlyle
 - "Fortune favors the bold.” – Virgil
 - "That which does not kill us makes us stronger." -unknown
-- "Life is what happens when you’re busy making other plans. - unknown
+- "Life is what happens when you’re busy making other plans." - unknown
