@@ -30,3 +30,4 @@
 - "No one can make you feel inferior without your consent." -Eleanor Roosevelt
 - "Life is like riding a bicycle. To keep your balance, you must keep moving." -Albert Einstein
 - "All that glitters is not gold." -William Shakespeare
+- "If you build it, they will come." -Joe Jackson
