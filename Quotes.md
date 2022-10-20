@@ -15,7 +15,7 @@
 - "You must be the change you wish to see in the world." -Mahatma Gandhi
 - “Be yourself; everyone else is already taken.” -― Oscar Wilde
 - You can totally do this" -Unknown
-- Don’t tell people your plans. Show them your results. -Unknown
+- Don’t tell people your plans. Show them your results." -Unknown
 -  No pressure, no diamonds --Thomas Carlyle
 - "Love For All, Hatred For None." – Khalifatul Masih III
 - Change the world by being yourself. – Amy Poehler
