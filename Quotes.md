@@ -1,6 +1,6 @@
 - “If you don’t like the hand that fate’s dealt you with, fight for a new one.” – Naruto Uzumaki
 - "The greatest glory in living lies not in never falling, but in rising every time we fall." -Nelson Mandela
-- "The way to get started is to quit talking and begin doing." -Walt Disney
+- The way to get started is to quit talking and begin doing." -Walt Disney
 - "If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough." -Oprah Winfrey
 -  “When we lose our principles, we invite chaos.” ― Mr. Robot
 -  “I have burrowed underneath your brain. I am nested there. I am the scream in your mind. You will cooperate.” ― Mr. Robot
