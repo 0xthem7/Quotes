@@ -18,7 +18,7 @@
 - Don’t tell people your plans. Show them your results." -Unknown
 -  No pressure, no diamonds --Thomas Carlyle
 - "Love For All, Hatred For None." – Khalifatul Masih III
-- Change the world by being yourself. – Amy Poehler
+- "Change the world by being yourself. – Amy Poehler
 - Every moment is a fresh beginning. – T.S Eliot
 - Never regret anything that made you smile. – Mark Twain
 - "Stay foolish to stay sane." Maxime Lagacé
