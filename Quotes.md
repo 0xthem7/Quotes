@@ -22,6 +22,7 @@
 - "Change the world by being yourself. – Amy Poehler
 - Every moment is a fresh beginning. – T.S Eliot
 - "Never regret anything that made you smile. – Mark Twain
+- "Your time is limited, so don't waste it living someone else's life. Don't be trapped by dogma – which is living with the results of other people's thinking."  - Steve Jobs
 - "Stay foolish to stay sane." Maxime Lagacé
 - "No pressure, no diamonds." - Thomas Carlyle
 - "Fortune favors the bold.” – Virgil
