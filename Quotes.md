@@ -33,3 +33,4 @@
 - "All that glitters is not gold." -William Shakespeare
 - "If you build it, they will come." -Joe Jackson
 - Actions are always louder than the voice" -Nooneknows
+- "Life is all about the second chance" -Disney's ABCD2
