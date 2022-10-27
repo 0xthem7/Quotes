@@ -33,3 +33,4 @@
 - "All that glitters is not gold." -William Shakespeare
 - "If you build it, they will come." -Joe Jackson
 - Actions are always louder than the voice" -Nooneknows
+- "It's not about how much you do, but how much love you put into what you do that counts." - Mother Teresa
