@@ -32,4 +32,5 @@
 - "Life is like riding a bicycle". To keep your balance, you must keep moving." -Albert Einstein
 - "All that glitters is not gold." -William Shakespeare
 - "If you build it, they will come." -Joe Jackson
-- Actions are always louder than the voice" -Nooneknows
+- "Actions are always louder than the voice" -Nooneknows
+- "Dream,Dare and Do." - Abishek Kafle
